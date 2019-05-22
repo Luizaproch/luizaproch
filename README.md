@@ -1,2 +1,2 @@
-# Luiza Joanna Proch
+# Luiza Joanna Proch Repository
 Luiza Proch Repository
