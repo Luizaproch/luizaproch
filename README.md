@@ -1,2 +1,2 @@
-# Luiza Joanna Proch Repository
+# To jest grupowe repozytorium
 Luiza Proch Repository
